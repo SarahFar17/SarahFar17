@@ -4,5 +4,6 @@ GIP1-2023-[1]-[2]-[1]
 -  Herkunft: Deutsch/algerisch
 -  Sternzeichen: Skorpion ♏️
 -  Anime Liebhaber 
-
+-  K-pop Fan
+-  Gym 
 
